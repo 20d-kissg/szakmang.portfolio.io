@@ -1,0 +1,1 @@
+# szakmang.portfolio.io
